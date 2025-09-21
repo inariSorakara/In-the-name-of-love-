@@ -17,7 +17,7 @@
 - **Transformation Concept:** Takes the shape of her old dream — an idol.
 - **Animal Companion:** Love, The Cat.
 - **Weapons:**  
-  - Suitcase → Drum (used as shield)  
+  - Suitcase → Symbal (used as shield)  
   - Microphone → Sword (idol’s tool turned weapon)  
 - **Abilities:**  
   - Enhanced strength  
@@ -25,7 +25,9 @@
   - High resilience  
   - Leadership that helps coordinate allies in combat  
 - **Unique Power:**  
-  - **Rhythm Sense** — can perceive rhythm in all things (movement, flow of battle, possibly intent). Over time, learns to subtly manipulate it.  
+  - **Metronome** — can perceive rhythm in all things (movement, flow of battle,
+  possibly intent). Over time, learns to subtly manipulate it. Later even
+  realizes that she can use her heartbeat to manipulate the rythm of everything.
 
 ## Awakened Form
 - **Core Power:** Full rhythm mastery → **control of time**.  
@@ -38,7 +40,7 @@
 - **Limitations:** Extremely draining; she collapses after use. First appears in the opening chapter and then lies dormant for a long time.  
 
 ## Story Role
-- Becomes the leader of the Human Rangers due to her natural sense of responsibility and heart.  
+- Becomes the succesor to Mori Midori and later the founder and leader of the Yumeno Rangers due to her natural sense of responsibility and heart.  
 - Represents the “plain” individual whose strength is hidden until pushed.  
 - Her insecurities and awareness of time fuel her power: what she fears most
 becomes her greatest weapon.
