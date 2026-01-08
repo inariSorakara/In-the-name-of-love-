@@ -1,5 +1,4 @@
 Liantcourt city.
-    Liantcourt City: fictional island between Japan and South Korea. It's often called "Akumu City" because it's constantly attacked by monsters and paranormal creatures
 - A massive godzilla-esque creature destroys the surrounding buildings.
 - An ever more massive force-shield stops him from getting away from it's range of destruction.
 - As a news reporter, Cassidy  and her camera man broadcast the incident from within an helicopter.
@@ -20,10 +19,10 @@ Liantcourt city.
 - Midori does a very serious chiburi with her leek weapon. With a darkned expression she says "Rooooooar!" translation: On my honor, it shall be done. 
 - the lizard goes ROOOOOOOOOOOOOOOAR translation: ...thank you. Instead of collapsing, his body starts to vanish into a cloud of glittering magic that disspears into the sky.
 - Midori takes a moment to mourn her enemy and gives a quiet prayer.
-- A black cat appears at her feet, rubbing between her legs. It, out of nowhere, puts out a large cigarrete and starts smoking it. "Done with your theatrics? The show must go on sweetheart" he says sardonically.
+- A black cat appears at her feet, rubbing between her legs. It, out of nowhere, puts out a large cigarrete and starts smoking it. "Done with your theatrics? The show must go on sweetcheeks" he says sardonically.
 - Midori smiles once again, the seriousness of her expresion gone. "Every life is worth fighting for, Love. Every life is worth mourning for."
-- "Yeah, yeah. Keep the sermon for later. We have got work to do."
-- Midori takes flight towards the helicopter where the newscaster beg her to say some words for the people watching at home. "Uhm, always extend a helping hand, respect your elders and...Oh, right! Always eat your veggies!" With this Midori strikes a pose and flies away. The news reporter keeps talking about this but we don't hear it.
+- "By all means, keep the sermon for later. We have got work to do."
+- Midori takes flight towards the helicopter where the newscaster beg her to say some words for the people watching at home. "Uhm, always extend a helping hand, respect your elders and...Oh, right! Of course! Always eat your veggies!" With this Midori strikes a pose and flies away. The news reporter keeps talking about this but we don't hear it.
 
 Rural Japan
 

@@ -1,0 +1,1 @@
+* Liantcourt City: fictional island between Japan and South Korea. It's often called "Akumu City" because it's constantly attacked by monsters and paranormal creatures
