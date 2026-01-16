@@ -1,4 +1,4 @@
-Liantcourt city.
+Liantcourt city.[Done]
 - A massive godzilla-esque creature destroys the surrounding buildings.
 - An ever more massive force-shield stops him from getting away from it's range of destruction.
 - As a news reporter, Cassidy  and her camera man broadcast the incident from within an helicopter.
@@ -24,7 +24,8 @@ Liantcourt city.
 - "By all means, keep the sermon for later. We have got work to do."
 - Midori takes flight towards the helicopter where the newscaster beg her to say some words for the people watching at home. "Uhm, always extend a helping hand, respect your elders and...Oh, right! Of course! Always eat your veggies!" With this Midori strikes a pose and flies away. The news reporter keeps talking about this but we don't hear it.
 
-Rural Japan
+
+Rural Japan [DONE]
 
 - "- Always eat your veggies!" a little girl, 6 years old or less. is at her home watching the broadcast from a very old TV. She's striking the same pose as Midori did.
 - "Mommy! Look! Miss Midori won again!" she says running to her mom."
@@ -32,7 +33,7 @@ Rural Japan
 - "Mommy! I want to be just like Miss Midori when I grow up!"
 - The mother exhales, allow her suspense of disbelief to shine. She picks up the little child from the floor and hugs her. "You will, my little song. You surely will."
 
-Lincourt city, again, but like 20 years later.
+Lincourt city, again, but like 20 years later. [DONE]
 - The little girl, Tamami Hanami, is now an adult. She's dressed in an outfit similar to Midori's, but less organic and more plastic.
 - "Bastet! Guide me into the hearts...of all of you!"
 - We get a clear look of what's happening. She's a performer, singing songs for a very small audience of balding, fat men who cheer for her.
@@ -63,7 +64,7 @@ Lincourt city, again, but like 20 years later.
 - One of Hanami's coworkers passes them and salutes Torey "Bye Hanami, Bye Torey. See you tomorrow"
 - They both stay quiet for a moment. Looking at each other in a silent mutual agreement.
 
-Streets
+Streets [DONE]
 - Hanami and Torey walk home together.
 - They start talking. hanami reveals that she works part time at the idol cafe because she doesn't make enough as a history teacher. 
 - She can't have the college know because they don't like having their teachers taint the prestige.
@@ -79,14 +80,14 @@ Streets
 - Tory pulls out a gun on them, shocking everyone. She starts screaming at them until they run away scared.
 - the men away, Hanami asks why the hell she has a gun,Tory pulls the trigger, demonstrating it's just a very convincing lighter. "you shouldn't smoke either" retorts Hanami.
 
-Streets also, but away from them
+Streets also, but away from them [DONE]
 - we see the annoyed drunkards walking away annoyed. They talk about the "crazy bitches who are no fun"
 - They see another figure in the distance. A very voluptuous woman. They start catcalling her, but she doesn't react.
 - "Hey, bombshell, wanna have some fun?"
 - As they reach "her" they finally see "her" clearly. A tall, thin "Man" dressed in a extravagant suit with a tophat and a cane; Nyall R. Thotep ("The Hat man" for simplicity). There's a mysterious purple hue around him
 - "Fun? Oh, how exciting! I do much adore having fun! Say, I do have a fun idea in mind?" One of them screams as they see a massive behemoth of a "man" appearing from behind him and snatching them.
 
-Streets, back to the girls
+Streets, back to the girls [DONE]
 - Hanami and Tory continue talking about life. Tory is apparently the daughter of one of the most powerful men in Lincourt City. She used to be daddy's special little girl, but now she's just father's daughter, heir to his throne.
 - As they continue talking they hear whistling behind them. 
 - "It's those weezos again, tots" Tory pulls out her "gun" once again trying to scare them off "Hey! Dickheads! What did I tell yah!?. It doesn't work.
@@ -94,7 +95,7 @@ Streets, back to the girls
 - Tory Freezes in place, dropping her lighter. "W-what- The-". Hanami snaps her out and taking her by the arm starts running with her.
 - Hanami and Tory run through the streets. They reach a dead end, so they turn into an alleyway. But darts, it's also a dead end.
 
-Back alley
+Back alley [DONE]
 - "What do we do? What do we do? My phone! My dad! What's wrong with the signal!? We are in the middle of Lincourt!" Asks Tory more to herself than to Hanami.
 - The dickheads close into them on the alley way.
 - "I will... distract them. Then you run." "What!? Are you insane!?" "It's my duty...as a teacher" Hanami swallos saliva
